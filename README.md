@@ -22,4 +22,4 @@ Third, we must elevate our amenities. The gym, family-friendly offerings, and in
 
 Lastly, on the marketing front, we should double down on what guests already love — breakfast, Wi-Fi, and quiet surroundings — while also repositioning underappreciated features like ease of parking and interior design through refreshed visuals and guest testimonials.
 
-In summary, we are already delivering on our key promises — now we focus on fine-tuning the rest of the experiences by marketing our strengths rightly to get ahe
+In summary, we are already delivering on our key promises — now we focus on fine-tuning the rest of the experiences by marketing our strengths rightly to get ahead. 
