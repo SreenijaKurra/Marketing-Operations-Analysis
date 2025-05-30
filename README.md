@@ -2,7 +2,7 @@
 
 Presenting key insights from our guest experience feedback, gathered both at check-in and check-out. The goal is to understand what we’re doing well, where expectations are falling short, and how we can refine both service and marketing to elevate overall satisfaction.
 
-Let’s begin-
+Let’s begin...
 
 Guests consistently appreciated three standout features: the quiet and restful environment, our delicious breakfast, and fast, reliable Wi-Fi. These were not only top reasons why people booked with us but also remained strong points of praise after their stay.
 
@@ -22,4 +22,4 @@ Third, we must elevate our amenities. The gym, family-friendly offerings, and in
 
 Lastly, on the marketing front, we should double down on what guests already love breakfast, Wi-Fi, and quiet surroundings while also repositioning underappreciated features like ease of parking and interior design through refreshed visuals and guest testimonials.
 
-In summary, we are already delivering on our key promises — now we focus on fine-tuning the rest of the experiences by marketing our strengths rightly to get ahead. 
+In summary, we are already delivering on our key promises. Now we focus on fine-tuning the rest of the experiences by marketing our strengths rightly to get ahead. 
