@@ -18,8 +18,8 @@ First, let’s improve the check-in experience. While it didn’t draw strong ne
 
 Second, we need to focus on room quality and service responsiveness. Standardizing cleaning procedures and empowering staff to handle special requests quickly and warmly will help bridge the expectation gap.
 
-Third, we must elevate our amenities. The gym, family-friendly offerings, and interior design features are either underutilized or not being promoted effectively. Small and simple things like pre-arrival emails — can make a big difference.
+Third, we must elevate our amenities. The gym, family-friendly offerings, and interior design features are either underutilized or not being promoted effectively. Small and simple things like pre-arrival emails can make a big difference.
 
-Lastly, on the marketing front, we should double down on what guests already love — breakfast, Wi-Fi, and quiet surroundings — while also repositioning underappreciated features like ease of parking and interior design through refreshed visuals and guest testimonials.
+Lastly, on the marketing front, we should double down on what guests already love breakfast, Wi-Fi, and quiet surroundings while also repositioning underappreciated features like ease of parking and interior design through refreshed visuals and guest testimonials.
 
 In summary, we are already delivering on our key promises — now we focus on fine-tuning the rest of the experiences by marketing our strengths rightly to get ahead. 
