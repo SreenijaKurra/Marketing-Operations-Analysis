@@ -2,7 +2,7 @@
 
 Presenting key insights from our guest experience feedback, gathered both at check-in and check-out. The goal is to understand what we’re doing well, where expectations are falling short, and how we can refine both service and marketing to elevate overall satisfaction.
 
-Let’s begin...
+<h2>Let’s begin...</h2>
 
 Guests consistently appreciated three standout features: the quiet and restful environment, our delicious breakfast, and fast, reliable Wi-Fi. These were not only top reasons why people booked with us but also remained strong points of praise after their stay.
 
@@ -12,7 +12,7 @@ But not all expectations were met. When we look at check-out data, we see notice
 
 For example, comfortable rooms were frequently cited during check-in but saw a sharp decline at check-out, pointing to inconsistency in upkeep or service. Similarly, friendly staff, a hallmark of hospitality saw a lower mention post-stay, suggesting we may need to strengthen consistency and personal interaction.
 
-With that in mind, here are four actionable recommendations:
+<h2>With that in mind, here are four actionable recommendations:</h2>
 
 First, let’s improve the check-in experience. While it didn’t draw strong negative feedback, it also didn’t have expectations from the guests. A smooth, welcoming arrival enhanced by signage, digital check-in, or concierge touches can create a stronger first impression.
 
